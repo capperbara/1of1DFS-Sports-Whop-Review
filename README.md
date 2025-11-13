@@ -16,7 +16,6 @@ I've spent weeks analyzing this daily fantasy sports Discord community to give y
 
 In this detailed review, I'll break down everything from their expert picks and betting tools to user experiences and pricing. Whether you're new to daily fantasy sports or looking for a PrizePicks alternative, this review will help you decide if [1of1DFS Sports is worth joining](https://whop.link.tmto.site/1of1dfs-sports/).
 
-<img width="1469" height="673" alt="10f1DFS sports betting whop group home page" src="https://github.com/user-attachments/assets/8c393cea-f5a5-41ba-a475-88cd77b62951" />
   
 
 ## What is 1of1DFS Sports?
@@ -25,7 +24,8 @@ In this detailed review, I'll break down everything from their expert picks and 
 
 1of1DFS Sports is a premium daily fantasy sports Discord community hosted on the Whop platform. Founded by "agus" and backed by a team of expert analysts, this service focuses on providing daily prop bets, DFS picks, and comprehensive betting guidance across multiple sports.
 
-  
+<img width="1469" height="673" alt="10f1DFS sports betting whop group home page" src="https://github.com/user-attachments/assets/8c393cea-f5a5-41ba-a475-88cd77b62951" />
+
 
 The community has experienced rapid growth, building a base of over 8,000 active members in a relatively short time. What sets them apart is their focus on **bankroll management** and **risk mitigation** rather than just promising unrealistic wins.
 
