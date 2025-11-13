@@ -16,6 +16,7 @@ I've spent weeks analyzing this daily fantasy sports Discord community to give y
 
 In this detailed review, I'll break down everything from their expert picks and betting tools to user experiences and pricing. Whether you're new to daily fantasy sports or looking for a PrizePicks alternative, this review will help you decide if [1of1DFS Sports is worth joining](https://whop.link.tmto.site/1of1dfs-sports/).
 
+<img width="1469" height="673" alt="10f1DFS sports betting whop group home page" src="https://github.com/user-attachments/assets/8c393cea-f5a5-41ba-a475-88cd77b62951" />
   
 
 ## What is 1of1DFS Sports?
